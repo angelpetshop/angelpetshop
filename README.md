@@ -5,3 +5,5 @@
 <h3 allign="center">(example: i uze a typing quirk mozt tiemz , if u hab trouble reading it plz tell mi bcoz i don mind not uzing it around u !!)</h3>
 <h3 allign="center">i can be very hyper and childish,, im sometimes a bit slow :( i love being positive and friendly feel free to talk to me!!! tho i have a habit of going inactive sometimes sorryyy,,, interests r in my rentry:3</h3>
 <h3 allign="center">dni proship/profic/lolishota... and um idk basic dni!! i block freely ^_^</h3>
+
+<h3 allign="center">i am very normal about guestnoob . i love guestnoob i love every variation of guestnoob PLZ TALK TO ME ABOUT GUESTNOOB</h3>
