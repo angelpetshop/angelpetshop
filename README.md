@@ -1,4 +1,4 @@
-# READ-ME
+# nya :3
 ![Image](https://github.com/user-attachments/assets/ebd2c4fe-1411-4132-beca-e69007007b55)
 <h3 allign="center">HAIII IM PIP u can also call me by any of my kins,,
 <h3 allign="center">i use a typing quirk most times, if u have trouble reading it pls tell me cause i dont mind not using it around u !!</h3>
