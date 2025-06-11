@@ -7,3 +7,5 @@
 <h3 allign="center">dni proship/profic/lolishota... and um idk basic dni!! i block freely ^_^</h3>
 
 <h3 allign="center">i am very normal about guestnoob . i love guestnoob i love every variation of guestnoob PLZ TALK TO ME ABOUT GUESTNOOB</h3>
+
+if u have an issue with me then feel free to whisper me about it :( i never want to be a problem on purpose
