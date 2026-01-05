@@ -10,4 +10,4 @@
 
 if u have an issue with me then feel free to whisper me about it :( i never want to be a problem on purpose
 
-fictkins: pip pirrup, poob, mangle, clemente dearworth, etc ill add later.. i do not if we share the same kin but i put this here incase others dont want to interact with doubles or whateva :p and do not argue with me about it!! please!
+fictkins: pip pirrup, poob, mangle, clemente dearworth, etc ill add later.. i do not care if we share the same kin but i put this here incase others dont want to interact with doubles or whateva :p and do not argue with me about it!! please!
