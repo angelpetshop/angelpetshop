@@ -9,3 +9,5 @@
 <h3 allign="center">I REALLY REALLY REALLY LOVE PARTYBEETLE AND GUESTNOOB!!</h3>
 
 if u have an issue with me then feel free to whisper me about it :( i never want to be a problem on purpose
+
+fictkins: pip pirrup, poob, mangle, clemente dearworth, etc ill add later.. idc if we share the same kin but i put this here incase others dont want to interact with doubles or whateva :p
